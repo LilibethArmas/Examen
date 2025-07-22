@@ -1,5 +1,5 @@
 # Examen
 Mónica Armas Examen
 Mónica Armas 
-[https://nakama-blog-ec.blogspot.com/2025/07/herramientas-ai-que-agilitan-las.html](https://nakama-blog-ec.blogspot.com/)
-https://www.servientrega.com.ec/home
+[https://nakama-blog-ec.blogspot.com/](https://nakama-blog-ec.blogspot.com/)
+https://www.servientrega.com.ec
